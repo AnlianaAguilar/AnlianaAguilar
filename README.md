@@ -7,4 +7,4 @@ Developer Front-End e Ingeniera Industrial, me caracterizo por tener iniciativa,
 
 
 Donde Encontrarme:
-- [Linkedin](www.linkedin.com/in/anliana- aguilar-b73a2583)
+- [Linkedin](www.linkedin.com/in/anliana-aguilar-b73a2583/?locale=en_US)
